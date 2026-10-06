@@ -1,0 +1,2 @@
+# premium-embed-petal-001-petal-embedding-botanical-pa
+Tired of losing track of your petal embeddings and botanical paper projects, drowning in scattered notes and forgotten timelines?  This Notion hub transforms chaos into clarity by centralizing every aspect of your craft—from petal sourcing and pressing schedules to final assembly. It’s the only template designed specifically for embed-petal artists
